@@ -1,0 +1,1 @@
+Olivia Isabel Rodrigo (born February 20, 2003) is an American singer-songwriter and actress. She gained recognition in the late 2010s with her lead roles on the Disney television programs Bizaardvark and High School Musical: The Musical: The Series. 
